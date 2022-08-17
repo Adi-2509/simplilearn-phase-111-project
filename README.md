@@ -1,1 +1,0 @@
-# simplilearn-phase-1-project
